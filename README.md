@@ -1,4 +1,4 @@
-- 👋 Hi, I’m S Lakshmanaraj founder of many inventions and see at https://www.linkedin.com/in/lakshmanarajsankaralingam/
+- 👋 Hi, I’m S Lakshmanaraj founder of many inventions and see for more info at https://www.linkedin.com/in/lakshmanarajsankaralingam/
 
 
 <!---
